@@ -1,4 +1,4 @@
-# School Course _________ Private Work Journal for _________________
+# School Course _________ Work Journal for _________________, Semester 1 2025
 
 
 Note: If you have a link to an assignment that has not been marked, put "open" after the word details inside the tag.
